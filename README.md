@@ -1,0 +1,1 @@
+# AN_ICT_Andrei_Viray_Gettingaverage
